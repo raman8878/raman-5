@@ -1,0 +1,1 @@
+is a way of life
